@@ -1,1 +1,1 @@
-Page 2
+Theatre is important for children because it fosters creativity, builds confidence, enhances communication skills, promotes teamwork, cultivates empathy, and provides a space for imaginative play, all contributing to a child's overall social and personal development; it allows them to explore different perspectives and express themselves through acting and storytelling
