@@ -1,6 +1,6 @@
 # Why Theatre is Awesome
 
-This repository showcases various Markdown features through multiple linked pages. 
+Click on these pages to figure out a more detailed look into why theatre is the best fine art
 
 ## Pages
 
