@@ -10,6 +10,5 @@ Click on these pages to figure out a more detailed look into why theatre is the 
 
 ---
 
-### Navigation
 
 - [Next: Page 1](page1.md)
