@@ -1,1 +1,1 @@
-page 3
+Sharing an experience with live actors and live audience members is not only valuable, it's necessary for human connection. Theatre is immediate, evolving and always different. Although the script may be the same every night, the performance is unique, each and every time it happens.
